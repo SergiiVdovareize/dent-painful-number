@@ -1,3 +1,3 @@
 ### Painful number
 
-https://sopainful.live
+https://dent.sopainful.live
